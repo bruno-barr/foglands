@@ -8,8 +8,7 @@ You are caught, forced to run the gauntlet alongside strangers, with your lives 
 
 Whatever station, wealth or fame you had has gone up in flames. You are treated as a monster by old friends and foes alike. They aren’t wrong. 
 
-\*\*Your crime? You have been touched by The Terrible Thing That Eats At The World.\*_You are now one of its unwilling jesters,\
-a ticking bomb._ 
+**Your crime? You have been touched by The Terrible Thing That Eats At The World.** You are now one of its unwilling jesters, a ticking bomb.\* 
 
 It has unburdened you from age, hunger and thirst, and bestowed upon you fearsome powers and curses. As you use the Fog, it uses you in turn.
 
